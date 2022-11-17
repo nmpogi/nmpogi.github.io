@@ -10,4 +10,4 @@ I am Nathan Mariano from 9-pro
 
 > **So Today I'm Going To Teach You On How To Improve Your Jump Shot**
 
-   > ![Jump Shot](https://user-images.githubusercontent.com/118333424/202584685-82ec408c-2d13-4c36-948c-21579f84a5ba.png)
+   >![Jump Shot](https://user-images.githubusercontent.com/118333424/202584685-82ec408c-2d13-4c36-948c-21579f84a5ba.png)
