@@ -1,7 +1,7 @@
 # Welcome to my GitHub Page!
 I am Nathan Mariano from 9-pro
 	
-##**ABOUT ME**
+**ABOUT ME**
 
 
 > **I love playing this game**
