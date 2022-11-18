@@ -15,4 +15,10 @@ I am Nathan Mariano from 9-pro
 
 >**First Lets See on How Curry Shoots The Ball**
 
->[Curry's Jump shot](https://youtu.be/cyaqJuQwoZs))
+>[Curry's Jump shot](https://youtu.be/cyaqJuQwoZs)
+
+>**Did you notice his release? Its Fast an Accurate.
+
+>**Here's the Breakdown of His Shot
+
+![Breakdown](https://user-images.githubusercontent.com/118333424/202587393-14f83cde-a96c-4f81-a516-2712ec83b6f8.png)
