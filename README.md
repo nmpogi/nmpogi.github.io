@@ -12,3 +12,7 @@ I am Nathan Mariano from 9-pro
  
  
  >![Jump Shot](https://user-images.githubusercontent.com/118333424/202585269-de6458aa-1a60-4c1a-8268-abcd66fd723e.png)
+
+>**First Lets See on How Curry Shoots The Ball**
+
+>![Curry's Jumpshot](https://user-images.githubusercontent.com/118333424/202586393-5668f4df-1e23-4ba4-bc3c-6f486b4126d7.png)
