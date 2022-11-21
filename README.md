@@ -26,3 +26,6 @@ I am Nathan Mariano from 9-pro
 >**Here's an even more in deph tutorial of his shot (With video)**
 
 ><iframe width="560" height="315" src="https://www.youtube.com/embed/_anxl_hE9jQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+>**When taking your jumpshot you should have a proper alignment
+>![Proper alignment](https://user-images.githubusercontent.com/118333424/202971659-7fb3e900-19ac-483a-8c08-351d8627753b.png)
