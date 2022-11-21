@@ -27,8 +27,27 @@ I am Nathan Mariano from 9-pro
 
 ><iframe width="560" height="315" src="https://www.youtube.com/embed/_anxl_hE9jQ" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+
+>**ALIGNMENT**
+
 >**When taking your jumpshot you should have a proper alignment**
 
 
 
 >![Proper alignment](https://user-images.githubusercontent.com/118333424/202971659-7fb3e900-19ac-483a-8c08-351d8627753b.png)
+
+
+>**Power**
+
+>**When taking your shot you should always bend your knees to have power to shoot the ball**
+
+
+>![Bending your knees](https://user-images.githubusercontent.com/118333424/202972177-9e223002-b8fb-4cf3-9b35-3ea19f1e4d0e.png)
+
+
+>**Jump**
+
+>**When jumping your elbow should be soulder height and the ball is above the head**
+
+>![Jump](https://user-images.githubusercontent.com/118333424/202972603-b3d0f4f7-ffe7-49ed-aead-cdd50148bba0.png)
+
