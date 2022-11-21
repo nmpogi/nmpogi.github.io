@@ -51,10 +51,14 @@ I am Nathan Mariano from 9-pro
 
 >![Jump](https://user-images.githubusercontent.com/118333424/202972603-b3d0f4f7-ffe7-49ed-aead-cdd50148bba0.png)
 
->**Follow Trough**
+>**Release**
 
 >**The ball must have a back spin in your jumpshot**
 
 >**Take a Look at This**
 
 ><iframe width="560" height="315" src="https://www.youtube.com/embed/lLCz7B14rTA" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+>**IF YOU FOLLOW THOSE STEPS YOU CAN IMPROVE YOUR JUMPSHOT**
+>**BUT ALWAYS REMEBER TO PRACTICE FOR BETTER RESULTTSS**
+>Thats all I can teach you for now, babyeeee.
